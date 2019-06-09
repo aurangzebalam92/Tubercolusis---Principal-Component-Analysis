@@ -1,0 +1,1 @@
+# Tubercolusis---Principal-Component-Analysis
